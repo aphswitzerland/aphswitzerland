@@ -7,7 +7,7 @@
 
 <div align="center">
 
-  [my rentry](https://rentry.co/G11) ✙ [my atabook](https://yksinasuva.atabook.org/) 
+✙ [my strawpage](https://schwyz.straw.page) ✙
 
 
 
